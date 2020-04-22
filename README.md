@@ -1,0 +1,2 @@
+# sample
+untuk latihan saja 
